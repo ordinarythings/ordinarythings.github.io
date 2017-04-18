@@ -4,11 +4,8 @@ permalink: /blog/:title
 
 # My variables
 name: Beauty in Ordinary Things
-<<<<<<< HEAD:blog-master/_config.yml
 description: claroscuro
-=======
-description: 
->>>>>>> a5d2f06d93cd43f8dce6415f8fc2eba4729d2dfd:_config.yml
+
 google_verification: null
 
 
