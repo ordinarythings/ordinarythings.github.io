@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Tuesday Spare
-collection: Story
+type: Story
 ---
 
 We sat on an old couch. The room around us was humble. The bed was made, but messy, the blue sheets seeping through the edges of the duvet as if trying to listen in on our conversation. Tyrone flipped through a German textbook, trying to focus his dark, feeble eyes on the letters. He had been distant, lately. His mannerisms, once full of energy, were now hidden behind the walls around his brain that lingered when his infection left. I typed on my laptop, a random playlist filling the room as I coded. The song ended and the room was silent for a moment. Then a familiar voice on the speakers sang:    
