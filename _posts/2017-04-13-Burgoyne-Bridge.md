@@ -1,6 +1,7 @@
 ---
 layout: post
 title: Burgoyne Bridge
+collection: Story
 ---
 
 It was dusk. Her hair trembled in the warm air like the snowflakes that had now ceased to fall. We sat on an iron bench, as we had many times before---perhaps just a couple inches closer. Her voice shook. She told me of her home. The place that had robbed her of her memories had suffered the same treatment. I touched her arm, making a silent promise of safety.
