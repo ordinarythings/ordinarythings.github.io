@@ -22,14 +22,15 @@ layout: default
         {% endfor %}
     </ul>
 </div>
-
 <div class="blog">
     <h1>Doors:</h1>
     <ul>
       {% for post in site.posts %}
+        {% if post.type == 'Doors' %}
           <li>
-              <span class="date">{{ post.date | date: '%Y %b %d' }}</span> - <a href="{{ post.url }}">{{ post.title }}</a>
+            <span class="date">{{ post.date | date: '%Y %b %d' }}</span> - <a href="{{ post.url }}">{{ post.title }}</a>
           </li>
+        {% endif %}
       {% endfor %}
     </ul>
 </div>
