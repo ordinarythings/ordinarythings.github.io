@@ -27,7 +27,7 @@ layout: default
     <h1>Doors:</h1>
     <ul>
         {% for post in site.posts %}
-          {% if post.collection == "Doors" %}
+          {% if post.collection == Doors %}
             <li>
                 <a href="{{ post.url }}">{{ post.title }}</a>
             </li>
