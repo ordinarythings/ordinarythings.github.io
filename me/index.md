@@ -2,4 +2,4 @@
 layout: about
 ---
 
-This is an about page. Tell the people visiting your page a little about yourself.
+> There's a lot of beauty in ordinary things. Isn't that kind of the point?
