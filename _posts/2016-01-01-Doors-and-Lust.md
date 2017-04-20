@@ -1,6 +1,7 @@
 ---
 layout: post
 title: Doors and Lust
+collection: Doors
 ---
 
 
