@@ -12,9 +12,9 @@ type: Story
 
 “I want you to fuck me in front of the Talmud, she says.
 
-“Is that like, your thing?” I ask. It’s her thing.
+“Is that like, your thing?” I ask.
 
-“I just want to try it. Might be hot.” 
+“I just want to try it. Might be hot.” It’s her thing.
 
 I look around her apartment. Except for the olive couch, and the almost-made bed I can glimpse through an ajar door, her bland furniture typical of college campuses is covered with black leather-bound books. The yellow light of a cheap lamp reflects off the golden Hebrew letters on each spine. 
 
