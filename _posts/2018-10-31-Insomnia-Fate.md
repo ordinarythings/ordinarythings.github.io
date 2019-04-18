@@ -8,5 +8,5 @@ We sat under the neon lights of a tattoo shop, waiting. My hand in hers amplifie
 
 Her skin glowed like graffiti, making art without meaning. In the night -- her darkroom -- overexposed, we unfolded. She said she was nervous. I was too; but the sharp fit of her nose on mine made my thoughts dilute, like water and cold coffee. I forgot then a time I wasn't allured by the glamorous shroud of winter.
 
-Transient, like the drag of a cigarette, she filled my lungs with sweet timber. I breathed what was left of her as she walked away, shedding mellow steps home, and exhaled into insomnia. 
+Transient, like the drag of a cigarette, she filled my lungs with sweet timber. I breathed what was left of her as she walked away, shedding mellow steps home, and exhaled into insomnia.
 
