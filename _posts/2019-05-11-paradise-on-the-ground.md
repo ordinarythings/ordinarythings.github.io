@@ -8,4 +8,4 @@ We saw them in the afterglow of a withering festival. Something about them didn'
 
 She saw it too. "He could beat you up," she whispered back.  We crossed the street and stood beside them, holding hands. He fidgeted. "Yo, can we help you. We're good here." I held my phone up and didn't say a word. I was too scared to. A car drove by us, slowing down. She bolted inside it. I've never seen anyone run that fast. When we turned back he was gone.
 
-It looked like it might rain. We went home and I forgot all about it. I didn't think about them for months. A year later, I started dreaming about it. I woke up in tears, but I felt light The gardens withered in rows, the festival music paused in wonder, and we didn't come back next year. But we crossed that road -- maybe that was enough?
+It looked like it might rain. We went home and I forgot all about it. I didn't think about them for months. A year later, I started dreaming about it. I woke up in tears, but I felt light. The gardens withered in rows, the festival music paused in wonder, and we didn't come back next year. But we crossed that road -- maybe that was enough?
