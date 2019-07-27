@@ -20,7 +20,7 @@ I look around her apartment. Except for the olive couch, and the almost-made bed
 
 I smile, bite my lip, and nod. Perfect. Suggestive, but not too eager. Sure, I’ll do it.
 
-After, she looks at me and I wonder if it's the first time. “Were you comfortable with everything tonight?” she asks before passing out, “ I mean, was everything consensual for you? I know we were both a little drunk.” That's a new one. De-briefing is my favourite part, and this is a good one. “Where have you been all my life?” It builds me up. Isn’t that why we do it? One text to fulfill a fantasy, to be an object by choice, for once, and let someone use you for their desire.
+After, she looks at me and I wonder if it's the first time. “Were you comfortable with everything tonight?” she asks before passing out, “I mean, I know we were both a little drunk.” De-briefing is my favourite part, and this is a good one. “Where have you been all my life?” It builds me up. Isn’t that why we do it? One text to fulfill a fantasy, to be an object by choice, for once, and let someone use you for their desire.
 
 I wonder how people did it before the smartphone. Before a right-swipe could mean the difference between a night alone, or one pretending to love a stranger until, like turning off a hot shower, the urge to go home overtakes, and I leave her sleeping, looking back with a smile that is almost intimate, and close the door behind me.
 
