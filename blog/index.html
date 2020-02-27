@@ -14,10 +14,10 @@ layout: default
 </div>
 
 <div class="blog">
-    <h1>Doors:</h1>
+    <h1>Drafts:</h1>
     <ul>
         {% for post in site.posts %}
-          {% if post.collection == "Doors" %}
+          {% if post.collection == "Drafts" %}
             <li>
                 <a href="{{ post.url }}">{{ post.title }}</a>
             </li>
