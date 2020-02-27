@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Paradise on the Ground
-type: other
+type: draft
 ---
 
 We saw them in the afterglow of a withering festival. Something about them didn't seem right. I thought maybe we were caught in the tumult of the last night. Ruminating on the gunshots, the awful shrieks, and the sound of a body falling limp on steps you've walked on. But still, something just didn't look right. Maybe it was the way she stood in his penumbra, or how his arm caught her between him and the brick wall. I whispered to you about it. We hesitated. Were we a few minutes from a few minutes too late?
