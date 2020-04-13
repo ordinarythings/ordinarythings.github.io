@@ -9,7 +9,7 @@ We sat on an old couch. The room around us was humble. The bed was made, but mes
 > I was runnin’ through the six with my woes.  
 > You know how that should go.
 
-​	My fingers laid motionless on the keyboard. Tyrone looked up from his book, suddenly grounded. We listened in silence, and when the last notes fell, we looked at each other.  
+​	My fingers laid still on the keyboard. Tyrone looked up from his book, suddenly grounded. We listened in silence, and when the last notes fell, we looked at each other.  
 
 ​	‘What was that?’ he asked. ‘Play it again.’  
 
