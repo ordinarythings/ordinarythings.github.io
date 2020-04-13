@@ -4,7 +4,7 @@ title: Tuesday Spare
 type: Story
 ---
 
-We sat on an old couch. The room around us was humble. The bed was made, but messy, blue sheets seeping through the edges of the duvet as if trying to listen in on our conversation. Tyrone flipped through a German textbook, trying to focus his dark, feeble eyes on the letters. He had been distant, lately -- faded. His mannerisms, once full of energy, were now hidden behind the walls encasing his brain that lingered when the infection left. I typed on my laptop, a random playlist filling the room as I worked. A song ended and the room was quiet for a moment. Then a familiar voice on the speakers sang:    
+We sat on an old couch. The room around us was humble. The bed was made, but messy, blue sheets seeping through the edges of the duvet as if trying to listen in on our conversation. Tyrone flipped through a German textbook, trying to focus his dark, feeble eyes on the letters. He had been distant, lately. Faded. His mannerisms, once playful, were now hidden behind the walls encasing his brain that lingered when the infection left. I typed on my laptop, a random playlist filling the room as I worked. A song ended and the room was quiet for a moment. Then a familiar voice on the speakers sang:    
 
 > I was runnin’ through the six with my woes.  
 > You know how that should go.
