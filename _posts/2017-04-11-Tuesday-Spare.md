@@ -13,7 +13,7 @@ We sat on an old couch. The room around us was humble. The bed was made, but mes
 
 ​	‘What was that?’ he asked. ‘Play it again.’  
 
-​	I restarted the song, and we listened to it once, two times more, adding our ad-libs.
+​	I restarted the song, and we listened to it once, two times more, adding our old ad-libs.
 
 ​	Until the bells rang.  
 
