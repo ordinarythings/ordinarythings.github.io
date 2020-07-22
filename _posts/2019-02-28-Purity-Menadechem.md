@@ -18,7 +18,7 @@ type: Story
 
 I look around her apartment. Except for the olive couch, and the almost-made bed I can glimpse through an ajar door, her bland furniture is covered with black leather-bound books. The yellow light of a cheap lamp reflects off the golden Hebrew letters on each spine. 
 
-I smile, bite my lip, and nod. Perfect. Suggestive, but not too eager. Sure, I’ll do it.
+I smile, bite my lip, and nod. Perfect. Suggestive, but not too eager. I like it -- I’ll do it.
 
 After, she looks at me and I wonder if it's the first time. “Were you comfortable with everything tonight?” she asks before passing out, “I mean, I know we were both a little drunk.” I swear it on the Torah. She says “where have you been all my life?” It builds me up. Isn’t that why we're here? One text to fulfill a fantasy, to be an object by choice, for once, and let someone use you for their desire.
 
